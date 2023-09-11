@@ -1,4 +1,4 @@
-# bem vido ao no meu perfil 👋
+# bem vindo ao meu perfil 👋
 
 Meu nome é Rakelly vitoria🥰
 
